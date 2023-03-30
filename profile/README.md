@@ -1,4 +1,4 @@
-🚀 Beschleunige deine Webseite um 50% mit Webhools! 🚀
+🚀 <b>Beschleunige deine Webseite um 50% mit Webhools!</b> 🚀
 
 Unsere einzigartige Methode, die Webhools-Methode®, führt im Durchschnitt zu 50% besseren Performance-Zahlen als andere Webseiten. Wir bieten klare und technisch einwandfreie Websites, die sich von selbst rentieren. Menschen wollen ihre Message spüren und nicht danach suchen.
 
